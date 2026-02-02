@@ -10,6 +10,7 @@ MA Climate and Society
 BA Biological Sciences and Environmental Studies
 
 ## Professional Interests
+Renewable Energy. Ecology. Environmental Science. Data Analysis. Project Management. 
 
 
 
